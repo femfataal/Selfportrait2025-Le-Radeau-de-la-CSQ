@@ -380,4 +380,10 @@ alright so the big trans atlantic move is now over, and Im back to Github once a
 
 Note to self: in which suitcase did I even pack the CAN flag? Or did I put it in a drawer somewhere?
 
+20:37 
+the light 
+is shyte. 
+
+I cannot work like this. 
+
 
