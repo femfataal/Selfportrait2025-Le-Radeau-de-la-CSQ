@@ -374,3 +374,10 @@ working on the shading of the flag. Its a bit hard to see due to the lightning p
 
 But I'm going to pause for now, as Im hungry and need to cook and move on with my day I guess
 
+
+**11-03-2026**
+alright so the big trans atlantic move is now over, and Im back to Github once again. Due to the move I had to carefully take the canvas off of the frame, and due to the fact I don't have a frame right now, I just attached the canvas directly to the wall with 4 nails (hope the girl Im subletting from won't mind lol). The plan is to do the QC flag, and maaaaybe even the CAN flag? That seems like an okay amount of work? 
+
+Note to self: in which suitcase did I even pack the CAN flag? Or did I put it in a drawer somewhere?
+
+
