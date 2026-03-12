@@ -382,8 +382,13 @@ Note to self: in which suitcase did I even pack the CAN flag? Or did I put it in
 
 20:37 
 the light 
+
 is shyte. 
 
 I cannot work like this. 
+
+**12-03-2026** 
+
+08:50 okay so I found out the morninglight is honestly spectacular. I think I finally found a reason why I would want to wake up early, around 6-ish. I could get up, & wake up with coffee and paint. Could be very nice. I'll do a quick session today I think. I should do some of the boards of the raft as theh keep stressing me out. 
 
 
