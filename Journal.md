@@ -391,4 +391,5 @@ I cannot work like this.
 
 08:50 okay so I found out the morninglight is honestly spectacular. I think I finally found a reason why I would want to wake up early, around 6-ish. I could get up, & wake up with coffee and paint. Could be very nice. I'll do a quick session today I think. I should do some of the boards of the raft as theh keep stressing me out. 
 
+09:30 did some of the wooden boards, nothing fancy much. Im very happy to get back into it. The light is great, it is a good morning ritual and I feel excited to work again. Will probably do the CAN flag next, and I really should watch some sort of tutorial/documentary on how to paint waves and/or the sea
 
