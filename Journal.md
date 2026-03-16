@@ -397,3 +397,7 @@ I cannot work like this.
 
 Was feeling a bit strange; restless, not sure to do with my day & feeling as if I have been failing at life in general, and just kind got pulled in to pick up the pencil for just a second and to start sketching out the wooden beams that actually make up the raft. I am too lazy to actually measure everything out correctly so I have been using the width of my middle finger as a universal height for the beams. Once I was almost done with the beams I realized I had been using paralell lines instead of the 2 points perspective lines, becauae I guess I am an idiot. So in terms of perfective the bottom right layer of the raft actually doesn't make much sense. Lucky for me my plan will be to do the raft layer by layer, so the next layer (which will be perpendicular to this first one, because raft) can be done with the correct perspective. I think it'll be fun to start filling in the beams with midtones (details yet to come) as it will start bringing the actual raft to life. 
 
+17:44
+
+finished the mid tones for the beams. Thing are definitly in the weird middle zone of everything being very ugly. The mistakes in perspective are also quite visable. I do like some of the very first bits of shade on the beams. 
+
