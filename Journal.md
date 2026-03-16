@@ -393,3 +393,7 @@ I cannot work like this.
 
 09:30 did some of the wooden boards, nothing fancy much. Im very happy to get back into it. The light is great, it is a good morning ritual and I feel excited to work again. Will probably do the CAN flag next, and I really should watch some sort of tutorial/documentary on how to paint waves and/or the sea
 
+**16-03-2025 13:16**
+
+Was feeling a bit strange; restless, not sure to do with my day & feeling as if I have been failing at life in general, and just kind got pulled in to pick up the pencil for just a second and to start sketching out the wooden beams that actually make up the raft. I am too lazy to actually measure everything out correctly so I have been using the width of my middle finger as a universal height for the beams. Once I was almost done with the beams I realized I had been using paralell lines instead of the 2 points perspective lines, becauae I guess I am an idiot. So in terms of perfective the bottom right layer of the raft actually doesn't make much sense. Lucky for me my plan will be to do the raft layer by layer, so the next layer (which will be perpendicular to this first one, because raft) can be done with the correct perspective. I think it'll be fun to start filling in the beams with midtones (details yet to come) as it will start bringing the actual raft to life. 
+
