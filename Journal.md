@@ -412,3 +412,9 @@ I finally figured out on of the oldest og tricks for doing 2 point pespective. W
 I do really feel like this is going to speed things up so much. 
 
 I guess the solution is partially to thank to a very interesting encouter over the weekend 
+
+20:53 
+
+Alright Im losing steam now. So I did a couple of the beams on the bottom, central corner. I think it works? I also used a secondary light, just difused into the room instead of pointed. There sure is more light in the room, but it is still sub-ideal. It doesnt look as if I did a lot, but I did make some progress, and it's decent enough as a proof of concept. 
+
+I've said it a million times before, but this entire painting is just so much fucking work. I understand why these kinds of "historie stukken" paintings were the most expensive and labour intensive; Im forced to combine so many different techniques here. 
