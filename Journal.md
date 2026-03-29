@@ -401,3 +401,14 @@ Was feeling a bit strange; restless, not sure to do with my day & feeling as if 
 
 finished the mid tones for the beams. Thing are definitly in the weird middle zone of everything being very ugly. The mistakes in perspective are also quite visable. I do like some of the very first bits of shade on the beams. 
 
+**29-03-2026**
+
+19:59 
+
+So jow that Im working with natural light again, the dark evenings are rough. I need a significant amount of light in order to keep seeing the differences in the hues of gold/brown. I sure as hell did set myself up for a challenge with that one. 
+
+I finally figured out on of the oldest og tricks for doing 2 point pespective. Work with ropes as a mean for quickly drawing lines. Please don't ask me why I have 10m of pink rope laying around ha ha ha. 
+
+I do really feel like this is going to speed things up so much. 
+
+I guess the solution is partially to thank to a very interesting encouter over the weekend 
