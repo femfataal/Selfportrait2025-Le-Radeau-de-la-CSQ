@@ -423,3 +423,7 @@ I've said it a million times before, but this entire painting is just so much fu
 
 17:39
 currently in the middle of the raft. Im not even sure what happened but I finally had the energy to get working again. The rope trick definitly worked in getting the sketch onto the canvas very quickly. Filling everything out with the base colour has been a ton of work. I did a crude fill-out, and now Im having to do sharp edge. Or well.. The plan is to grab a bottle of white first, and maybe some babi pangang as well if Im cheecky. I stand with my og point; God this painting is just so much work. I havent even thought about shading. And then theres the dreaded water and the waves. Im really gonna have to watch a documentary about it or smt.
+
+
+22:30
+I did some of the outlining, cool. Still so much more left uugh. At least the lines are getting sharper. 
