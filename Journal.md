@@ -418,3 +418,8 @@ I guess the solution is partially to thank to a very interesting encouter over t
 Alright Im losing steam now. So I did a couple of the beams on the bottom, central corner. I think it works? I also used a secondary light, just difused into the room instead of pointed. There sure is more light in the room, but it is still sub-ideal. It doesnt look as if I did a lot, but I did make some progress, and it's decent enough as a proof of concept. 
 
 I've said it a million times before, but this entire painting is just so much fucking work. I understand why these kinds of "historie stukken" paintings were the most expensive and labour intensive; Im forced to combine so many different techniques here. 
+
+**14-4-2026**
+
+17:39
+currently in the middle of the raft. Im not even sure what happened but I finally had the energy to get working again. The rope trick definitly worked in getting the sketch onto the canvas very quickly. Filling everything out with the base colour has been a ton of work. I did a crude fill-out, and now Im having to do sharp edge. Or well.. The plan is to grab a bottle of white first, and maybe some babi pangang as well if Im cheecky. I stand with my og point; God this painting is just so much work. I havent even thought about shading. And then theres the dreaded water and the waves. Im really gonna have to watch a documentary about it or smt.
