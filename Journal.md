@@ -427,3 +427,11 @@ currently in the middle of the raft. Im not even sure what happened but I finall
 
 22:30
 I did some of the outlining, cool. Still so much more left uugh. At least the lines are getting sharper. 
+
+**18-04-2026** 
+
+16:12 
+
+I was on a call with Jay again, and I just decided to pick up the brush while talking. I guess I should temporarily call it quits on the raft itself. This is going to be the first version of it, while Im going to move on to ither stuff, like the flag or the fucking water....
+
+Im still not entirely sure if Im happy with the way everything looks, but the fact that those little ends on the left side of the raft are finished, makes me quite happy. 
