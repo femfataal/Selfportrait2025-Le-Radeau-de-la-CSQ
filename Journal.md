@@ -435,3 +435,12 @@ I did some of the outlining, cool. Still so much more left uugh. At least the li
 I was on a call with Jay again, and I just decided to pick up the brush while talking. I guess I should temporarily call it quits on the raft itself. This is going to be the first version of it, while Im going to move on to ither stuff, like the flag or the fucking water....
 
 Im still not entirely sure if Im happy with the way everything looks, but the fact that those little ends on the left side of the raft are finished, makes me quite happy. 
+
+**19-04-2026**
+
+17:17 got on another call with a friend and wasnt able to focus much while talking so I resorted to freestyling some texture on the beams. I'll probably have to do it properly at some point, but it does look slightly better here and there? uugh I just hate having to do the raft, and ny lack of actually studying it, is probably biting me in the ass. 
+
+
+While on a second call, I finally took references pics for the CAN flag, did outlines for it in procreate, and pit it on the canvas. This went very well and Im quite pleased with the result. I'll probably habe to redo the QC flag though. Or at the very least add more highlights. 
+
+I'll probably have to take the entire thing off of the wall, and iron it too relatively soon, or at least before I'll start the water. Im really not looking forward to that though. At the very least, the whole: make it exist, improve on it later concept, is helping me to keep things moving though. 
