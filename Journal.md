@@ -444,3 +444,11 @@ Im still not entirely sure if Im happy with the way everything looks, but the fa
 While on a second call, I finally took references pics for the CAN flag, did outlines for it in procreate, and pit it on the canvas. This went very well and Im quite pleased with the result. I'll probably habe to redo the QC flag though. Or at the very least add more highlights. 
 
 I'll probably have to take the entire thing off of the wall, and iron it too relatively soon, or at least before I'll start the water. Im really not looking forward to that though. At the very least, the whole: make it exist, improve on it later concept, is helping me to keep things moving though. 
+
+**12-10-2026**
+
+It's once again my bday. I got a place in Eindhoven now, and a job again. And a cat. And also I've been on SSRIs for a couple months now. 
+
+It sure has been... a time. Im also getting sued in the meanwhile. Not even sure how much I'm allowed to dosclose about that. Been through a bunch of treatments and clinics; the latest version of the diagnosis is an "unriped and bruised personality" (personality disorder), trauma and stress disorder, bad parent-child relationship, among others such as a depression and crisis epsiode. FUN. 
+
+Anyways, this is the first time picking up the brush in ages, so that has been nice. I really just half-assed some waves, and that was it. But it is good to know that I can still do this. I'm gonna figure out a way to get the canvas pressed and spun up on a frame again some time soon as well, probably with some help from Jay and/or Tjeu. 
