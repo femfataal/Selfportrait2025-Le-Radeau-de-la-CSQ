@@ -452,3 +452,13 @@ It's once again my bday. I got a place in Eindhoven now, and a job again. And a 
 It sure has been... a time. Im also getting sued in the meanwhile. Not even sure how much I'm allowed to dosclose about that. Been through a bunch of treatments and clinics; the latest version of the diagnosis is an "unriped and bruised personality" (personality disorder), trauma and stress disorder, bad parent-child relationship, among others such as a depression and crisis epsiode. FUN. 
 
 Anyways, this is the first time picking up the brush in ages, so that has been nice. I really just half-assed some waves, and that was it. But it is good to know that I can still do this. I'm gonna figure out a way to get the canvas pressed and spun up on a frame again some time soon as well, probably with some help from Jay and/or Tjeu. 
+
+**26-10-2026** 
+
+Finally got back to a potential work flow perhaps. I now have new bedroom lights that, while still not ideal, are good enough that I can work during the dark Dutch mornings again. I did some light shading and highlighting. Still very much struggling with the waves. I could just watch more tutorial on how to paint water, and idk why. In the meanwhile I finished the Holofernes vs. Judith digital work, which tought me a bunch about digital shading I suppose. I find that the skills aren't nesscecarily directly applicable to the paint due to the change in medium. 
+
+The peaks of the waves are still too bright and it is making the overall picture messy. At some point I will also have to go ahead and finish the damn suitcase, but also add in a bunch of the other personal belonging I want to add in. 
+
+And ofcourse the elephant in the room, I need to iron the canvas itself, build a new literal framework and then get the canvas on the frame with the right tension... 
+
+Other than that, Im starting to feel like I am perhaps approaching the end of this project? Which would be bonkers ngl. Maybe it's the SSRIs that's making decisions easier? For what it's worth I do still kinda think of it as a masterpiece of my abilities at this exact point in time. It'll be a pretty amazing center piece of the giant 17th century art salon-like wall. 
