@@ -462,3 +462,10 @@ The peaks of the waves are still too bright and it is making the overall picture
 And ofcourse the elephant in the room, I need to iron the canvas itself, build a new literal framework and then get the canvas on the frame with the right tension... 
 
 Other than that, Im starting to feel like I am perhaps approaching the end of this project? Which would be bonkers ngl. Maybe it's the SSRIs that's making decisions easier? For what it's worth I do still kinda think of it as a masterpiece of my abilities at this exact point in time. It'll be a pretty amazing center piece of the giant 17th century art salon-like wall. 
+
+**15-11-2026**
+
+i feel like I might be nearing the end of the project? I just filled out the shape of the suitcase, a dampened some of the brighter coloured waves in the bottom right. 
+I don't know if it's the SSRIs but Im starting to feel like this project isn't completed but more that it isn't really teaching me anything new. Im honestly getting a little bored by it? I posted the current state of thing on my ig. Asking if there are any suggestions. I guess I should have added more stuff to the raft, but I'm not feeling like it anymore. I kinde just want to put it on the frame and perhaps just call it a day. 
+In conclusion I think it is a decent hobby project. Still very much the hobby project of an amateur. The flags are definitly the best part about it and show the most detail. I also learned a lot about shading and bleding. Oh right plus that trick with the ropes was quite brilliant. 
+There is something strange about how I kinda wanted this to really feel like my personal masterpiece. But it doesn't. Something something journey destination I guess. Looks decent. And will confuse people that come into my house for years to come. 
